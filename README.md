@@ -7,9 +7,9 @@ Filmul complet Deadpool 3 & Wolverine 2024 va avea premiera online în toate cin
 
 Pentru a accesa site-ul, vă rugăm să faceți clic pe link-ul de mai jos! ! !
 
-👉👉 VEZI FILMUL ONLINE SUBTITRAT IN ROMANA, CLICK AICI
+[👉👉 VEZI FILMUL ONLINE SUBTITRAT IN ROMANA, CLICK AICI](https://star.getaction.xyz/ro/movie/533535/deadpool-wolverine)
 
-👉👉 VEZI FILMUL ONLINE SUBTITRAT IN ROMANA, CLICK AICI
+[👉👉 VEZI FILMUL ONLINE SUBTITRAT IN ROMANA, CLICK AICI](https://star.getaction.xyz/ro/movie/533535/deadpool-wolverine)
 
 "Ultima actualizare 07 iunie 2024"
 
